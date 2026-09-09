@@ -1,1 +1,2 @@
 Yuriy BEZKOROVAINIY 519
+Galina Anatoliivna PROSKURA
